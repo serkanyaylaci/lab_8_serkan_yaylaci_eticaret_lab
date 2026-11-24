@@ -1,0 +1,1 @@
+# lab_8_serkan_yaylaci_eticaret_lab
